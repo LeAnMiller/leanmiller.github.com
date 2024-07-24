@@ -1,4 +1,7 @@
-# LeAn Miller
-## Medium Latest Posts
-  - [Easy Way to Find the Latest Working Parasites Using the “Kalki 2898 AD” Movie](https://medium.com/@leanmiller/easy-way-to-find-the-latest-working-parasites-using-the-kalki-2898-ad-movie-84371a861188)
 ![](https://miro.medium.com/v2/resize:fit:720/format:webp/1*r7giykqoZnnKfU0lCjE9BQ.png)
+- [https://www.quora.com/profile/LeAn-Miller-1](https://www.quora.com/profile/LeAn-Miller-1)
+- [Easy Way to Find the Latest Working Parasites Using the “Kalki 2898 AD” Movie](https://medium.com/@leanmiller/easy-way-to-find-the-latest-working-parasites-using-the-kalki-2898-ad-movie-84371a861188)
+- [https://x.com/LeAnMiller99](https://x.com/LeAnMiller99)
+- [https://www.pinterest.com/LeAnMiller9](https://www.pinterest.com/LeAnMiller9)
+- [https://www.youtube.com/channel/UC_u9L6eOE03nrJBDFWmgspg](https://www.youtube.com/channel/UC_u9L6eOE03nrJBDFWmgspg)
+- [https://www.pinterest.com/pin/1083749097826695476/](https://www.pinterest.com/pin/1083749097826695476/)
